@@ -1,1 +1,1 @@
-# shooting-ship
+This is one of my early work, some of the resource may not be able to access pretty well, yet I do had record for them. https://wp.nyu.edu/shanghai-celestehu/2022/12/20/celestes-final-presentreport-blog/
